@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Bear for macOS extension with updated Bear for macOS Extension | task automation + database templates. Featuring task automation and database templates, it's the
 
 
 
